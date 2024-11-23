@@ -1,4 +1,4 @@
-# to-do-list
+# To-Do-List
 - Wake up
 - Pray
 - Make my bed
