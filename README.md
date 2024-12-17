@@ -5,3 +5,14 @@
 - Brush my teeth
 - Read Bible
 - Prepare myself for class
+- Math Class
+- Order and eat Breakfast
+- Economics class (Microeconomics)
+- Accounting Class
+- Eat Lunch
+- Finish any other work/Network with professionals
+- Workout with friends
+- Eat Dinner
+- Shower and get ready for bed
+- Pray
+- Go to sleep
